@@ -1,1 +1,3 @@
 # Resolusi
+
+Hahahahahahaha setan gorengan
